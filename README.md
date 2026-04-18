@@ -1,1 +1,0 @@
-# jtranatl.github.io
